@@ -1,0 +1,2 @@
+# kamakurabakuhu
+kamakura
